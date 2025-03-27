@@ -1,0 +1,1 @@
+# 6182201092-StanislausNathan-tugas-1
